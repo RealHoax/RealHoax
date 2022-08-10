@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://thumbs.gfycat.com/UnfitPitifulHoatzin-mobile.mp4">
+<img src="[https://thumbs.gfycat.com/UnfitPitifulHoatzin-mobile.mp4](https://thumbs.gfycat.com/UnfitPitifulHoatzin-size_restricted.gif)">
 </p>
 <p align="center">
     7teen
